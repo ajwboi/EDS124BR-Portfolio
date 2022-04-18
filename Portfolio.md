@@ -5,3 +5,5 @@
 [Breakdancer - Week 2 Loops Activity](https://youtu.be/xaPkE8ijmnY)
 
 [Animals - Week 2 Scratch Activity](https://youtu.be/Y7tz29zETR0)
+
+[Octagon Rat - Week 3 Snap Activity](https://youtu.be/edfwLpCWHTU)
