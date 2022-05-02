@@ -11,3 +11,5 @@
 [Monkey Game - Week 3 Snap Activity](https://youtu.be/6bHPxISuXLE)
 
 [Shape Variables - Week 4 Snap Activity](https://youtu.be/goWw_6wso7A)
+
+[Bouncing Soccer Ball - Week 5 Snap Activity](https://youtu.be/6mJXpr1HrDk)
