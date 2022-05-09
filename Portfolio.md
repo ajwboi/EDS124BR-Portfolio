@@ -13,3 +13,5 @@
 [Shape Variables - Week 4 Snap Activity](https://youtu.be/goWw_6wso7A)
 
 [Bouncing Soccer Ball - Week 5 Snap Activity](https://youtu.be/6mJXpr1HrDk)
+
+[Target - Week 6 Snap Activity](https://youtu.be/6bvbyX4hURo)
