@@ -15,3 +15,5 @@
 [Bouncing Soccer Ball - Week 5 Snap Activity](https://youtu.be/6mJXpr1HrDk)
 
 [Target - Week 6 Snap Activity](https://youtu.be/6bvbyX4hURo)
+
+[Swimming Penguin - Week 7 Snap Activity](https://youtu.be/0cfiZNPg-UY)
