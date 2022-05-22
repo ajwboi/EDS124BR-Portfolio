@@ -17,3 +17,5 @@
 [Target - Week 6 Snap Activity](https://youtu.be/6bvbyX4hURo)
 
 [Swimming Penguin - Week 7 Snap Activity](https://youtu.be/0cfiZNPg-UY)
+
+[Treasure in the Sand - Week 8 Snap Activity](https://youtu.be/CTnDrFr2KWM)
