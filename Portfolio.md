@@ -19,3 +19,5 @@
 [Swimming Penguin - Week 7 Snap Activity](https://youtu.be/0cfiZNPg-UY)
 
 [Treasure in the Sand - Week 8 Snap Activity](https://youtu.be/CTnDrFr2KWM)
+
+[Draw A Picture - Week 9 Snap Activity](https://youtu.be/QeuMwoe7GIs)
